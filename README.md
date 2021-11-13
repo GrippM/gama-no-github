@@ -1,0 +1,1 @@
+Até o presente momento aprendi muita coisa no curso da Gama! Estou bem empolgada, pois acredito qye este era extamente o conteúdo que eu estava buscando aprender no momento que acho que fará a diferença e impulsionará minha carreira.
